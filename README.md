@@ -1,1 +1,0 @@
-# Training_project_macha
